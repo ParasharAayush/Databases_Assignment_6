@@ -1,1 +1,0 @@
-# Databases_Assignment_6
